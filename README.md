@@ -10,3 +10,6 @@ Deutsch
 2. Gehe zu Optionen (oder Einstellungen) -> Sprache -> wähle „繁体中文“ -> Spiel starten. 
 
 Es gibt noch einige Bugs, aber der Patch ist spielbar. (Bilder, Videos und der @Channel wurden noch nicht übersetzt, da dies sehr aufwendig ist.)
+
+
+Mega Link: https://mega.nz/file/lRlnHCpS#hG0N_DaKpTzpv1_VjS6mUSPS_WxQ2aT78BCUc5bSnDE 
