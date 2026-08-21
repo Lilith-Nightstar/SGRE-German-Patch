@@ -14,4 +14,4 @@ Es gibt noch einige Bugs, aber der Patch ist spielbar. (Bilder, Videos und der @
 
 Mega Link: https://mega.nz/file/lRlnHCpS#hG0N_DaKpTzpv1_VjS6mUSPS_WxQ2aT78BCUc5bSnDE 
 
-https://buymeacoffee.com/lilithnightstar/e/568053 - Buy me a hot cocoa? :3
+https://buymeacoffee.com/lilithnightstar/e/568053 - Buy me a hot cocoa pls pls pls? :3
